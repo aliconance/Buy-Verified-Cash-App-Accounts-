@@ -1,2 +1,5 @@
-# Buy-Verified-Cash-App-Accounts-
-If you want more information, just contact us now. 24-Hour Reply/Contact ➤Email: smmusait@gmail.com ➤Telegram: @SMMUSAIT ➤Discord: SMMUSAIT ➤WhatsApp: +1 (218) 234-2792
+If you want more information, just contact us now.
+24/7 Hours Reply/Contact
+➤Telegram: @Topsellpva
+➤WhatsApp: +1 (831) 824-8745
+➤Email: support@topsellpva.com
